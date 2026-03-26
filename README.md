@@ -14,6 +14,10 @@
 
 ---
 
+### Responsável pelos links: Kembolle Amilkar
+
+---
+
 ## Navegue por categoria
 
 [🛡️ InfoSec](#️-infosec--mt) · [🎲 Ciência de Dados](#-ciência-de-dados--mt) · [👨‍💻 Suporte](#-suporte--mt) · [⚙️ Developers](#️-developers--mt) · [📊 SQL](#-sql--mt) · [🏃 Agile](#-agile--mt) · [💵 Vagas](#-divulgação-de-vagas) · [🏆 Geral](#-profissionais-de-ti---mato-grosso) · [🧠 IA & Inovação](#-inteligências-tecnológicas) · [🛡️ Estudo SCIRT](#️-grupo-de-estudo-scirt--br)
