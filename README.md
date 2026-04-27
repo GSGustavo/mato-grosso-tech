@@ -31,7 +31,6 @@
 | # | Link |
 |---|------|
 | Grupo 1 | [Entrar no grupo](https://chat.whatsapp.com/FnNY74tidtS0kANP6LKJ4F) |
-| Grupo 2 | [Entrar no grupo](https://chat.whatsapp.com/HILfalYVeml0iiC9ZurXVn) |
 
 ---
 
@@ -51,7 +50,7 @@
 
 | Link |
 |------|
-| [Entrar no grupo](https://chat.whatsapp.com/Fdu9k7pp4iCKfCnkOHFhWd) |
+| [Entrar no grupo](https://chat.whatsapp.com/DjxdidqLPrqAiRxQwrGv1i) |
 
 ---
 
@@ -61,7 +60,7 @@
 
 | Grupo | Link |
 |-------|------|
-| Developers MT | [Entrar no grupo](https://chat.whatsapp.com/BmMu6pyssVj2VX1htA1877) |
+| Developers MT | [Entrar no grupo](https://chat.whatsapp.com/HsGWvwqh6ntFCynwqEchUw) |
 | Google Developers — Sinop/MT | [Entrar no grupo](https://chat.whatsapp.com/L8n0QUBLgUaEAaI44Wf6XK) |
 
 ---
@@ -82,7 +81,7 @@
 
 | Link |
 |------|
-| [Entrar no grupo](https://chat.whatsapp.com/IK4PcCnMt7jDosUE688OeN) |
+| [Entrar no grupo](https://chat.whatsapp.com/DzV4MAEFcXEGnY3103FAnX) |
 
 ---
 
@@ -92,7 +91,7 @@
 
 | Link |
 |------|
-| [Entrar no grupo](https://chat.whatsapp.com/H6C1JhimgE1A28vSF0Grub) |
+| [Entrar no grupo](https://chat.whatsapp.com/CnzJPtCMZcVEzN2hN4URhm) |
 
 ---
 
@@ -112,7 +111,7 @@
 
 | Link |
 |------|
-| [Entrar no grupo](https://chat.whatsapp.com/HeuG9FTxDbHHKtMM7u99bl) |
+| [Entrar no grupo](https://chat.whatsapp.com/CAX7evE1diy4l8DrRREOud) |
 
 ---
 
